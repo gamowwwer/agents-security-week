@@ -1,0 +1,1 @@
+Проект интенсива Ягдекса Agents Security Week
